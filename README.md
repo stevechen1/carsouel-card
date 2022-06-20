@@ -1,1 +1,1 @@
-(预览)[http://12am.top/carsouel-card/index.html]
+[预览](http://12am.top/carsouel-card/index.html)
